@@ -11,4 +11,8 @@
 
 [![ 𝐖𝐡𝐚𝐭𝐬𝐚𝐩𝐩 𝐜𝐡𝐚𝐧𝐧𝐞𝐥 ](https://img1.pixhost.to/images/5388/593510747_joocloud.jpg)](https://whatsapp.com/channel/0029Vb5xOCeFCCoLrhVS0Z36)
 
+[![ 𝐎𝐖𝐍𝐄𝐑 ]
+(https://img1.pixhost.to/images/5388/593511425_joocloud.jpg)]
+(wa.me/6281265748644)
+
    
