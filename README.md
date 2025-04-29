@@ -9,6 +9,6 @@
    𝐝𝐞𝐯𝐞𝐥𝐨𝐩𝐞𝐫 𝐬𝐜𝐫𝐢𝐩𝐭 𝐁𝐨𝐭 𝐖𝐡𝐚𝐭𝐬𝐚𝐩𝐩 
    (𝐉𝐮𝐬𝐭𝐢𝐧𝐧𝐰𝐢_𝐎𝐟𝐟𝐢𝐜𝐢𝐚𝐥)
 
-[![ 𝐖𝐡𝐚𝐭𝐬𝐚𝐩𝐩 𝐜𝐡𝐚𝐧𝐧𝐞𝐥 ](https://files.catbox.moe/a8ymlq.jpg)](https://whatsapp.com/channel/0029Vb5xOCeFCCoLrhVS0Z36)
+[![ 𝐖𝐡𝐚𝐭𝐬𝐚𝐩𝐩 𝐜𝐡𝐚𝐧𝐧𝐞𝐥 ](https://img1.pixhost.to/images/5388/593510747_joocloud.jpg)](https://whatsapp.com/channel/0029Vb5xOCeFCCoLrhVS0Z36)
 
    
