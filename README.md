@@ -24,7 +24,7 @@
 
 ## 𝗦𝗼𝗰𝗶𝗮𝗹𝘀 :
 
-[![ 𝐖𝐡𝐚𝐭𝐬𝐚𝐩𝐩 𝐜𝐡𝐚𝐧𝐧𝐞𝐥 ](https://img1.pixhost.to/images/5388/593510747_joocloud.jpg)](https://whatsapp.com/channel/0029Vb5xOCeFCCoLrhVS0Z36)
+[![ 𝐖𝐡𝐚𝐭𝐬𝐚𝐩𝐩 𝐜𝐡𝐚𝐧𝐧𝐞𝐥 ](https://img1.pixhost.to/images/5388/593515328_joocloud.jpg)](https://whatsapp.com/channel/0029Vb5xOCeFCCoLrhVS0Z36)
 [![ 𝐍𝐎𝐌𝐎𝐑 𝐎𝐖𝐍𝐄𝐑 ](https://img1.pixhost.to/images/5388/593511425_joocloud.jpg)](wa.me/6281265748644)
 
 ## 𝐓𝐫𝐚𝐧𝐬𝐚𝐤𝐬𝐢 𝐬𝐞𝐥𝐚𝐥𝐮 𝐚𝐦𝐚𝐧 100% !
