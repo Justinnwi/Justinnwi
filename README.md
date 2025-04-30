@@ -20,6 +20,9 @@
 [![ 𝐖𝐡𝐚𝐭𝐬𝐚𝐩𝐩 𝐜𝐡𝐚𝐧𝐧𝐞𝐥 ](https://img1.pixhost.to/images/5388/593515328_joocloud.jpg)](https://whatsapp.com/channel/0029Vb5xOCeFCCoLrhVS0Z36)
 [![ 𝐍𝐎𝐌𝐎𝐑 𝐎𝐖𝐍𝐄𝐑 ](https://img1.pixhost.to/images/5389/593516806_joocloud.jpg)](https://wa.me/62+81265748644)
 
+## 𝐆𝐁 𝐀𝐋𝐋 𝐆𝐀𝐌𝐄 / 𝐆𝐁 𝐍𝐎𝐍𝐆𝐊𝐑𝐎𝐍𝐆
+[![𝐆𝐁 𝐂𝐨𝐥𝐥𝐚𝐛](https://img1.pixhost.to/images/5407/593698283_m4k.jpg)](https://chat.whatsapp.com/ISan0v0VUDPJmQmPDeVWoY)
+
 ## 𝐓𝐫𝐚𝐧𝐬𝐚𝐤𝐬𝐢 𝐬𝐞𝐥𝐚𝐥𝐮 𝐚𝐦𝐚𝐧 100% !
 
 - 𝐕𝐏𝐒
